@@ -11,7 +11,7 @@ Classical Gas||||
 Harper Valley P.T.A.|||| 
 Hey Jude |Beatles|||
 Honey ||||
-Hush ||Joe South|| 
+Hush |Billy Joe Royal|Joe South|| 
 Lady Willpower ||||
 Look to your Soul ||||
 Paper Cup ||||
